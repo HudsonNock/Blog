@@ -1,4 +1,4 @@
-My Experience Self Studying and What I Learned
+[My Experience Self Studying and What I Learned](https://hudsonnock.github.io/self-study-blog)
 
 Why Moral Philosophy Should be Taught Throughout Highschools
 
